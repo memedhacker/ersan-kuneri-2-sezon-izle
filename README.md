@@ -1,5 +1,9 @@
 <h1>Erşan Kuneri 2. sezon izle</h1>
 
+
+<a href="https://ay.live/ersank"><img src="https://imgur.com/oE6Ykhi"></a>
+
+
 <h1>Erşan Kuneri 2. Sezon: Yeni Bölümler ve Sürprizler Ne Zaman Yayınlanacak?</h1>
 
 <p>Cem Yılmaz'ın büyük beğeni toplayan yapımı <strong>Erşan Kuneri</strong>, ilk sezonuyla izleyicileri kahkahaya boğmuş ve unutulmaz bir deneyim sunmuştu. Şimdi ise merakla beklenen <strong>Erşan Kuneri 2. sezon</strong> için geri sayım başladı! Peki, yeni sezon hakkında neler biliyoruz? İşte diziye dair tüm detaylar ve merak edilenler!</p>
