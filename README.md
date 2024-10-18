@@ -1,7 +1,7 @@
 <h1>Erşan Kuneri 2. sezon izle</h1>
 
 
-<a href="https://ay.live/ersank"><img src="https://imgur.com/oE6Ykhi"></a>
+<a href="https://ay.live/ersank"><img src="https://i.imgur.com/oE6Ykhi.png"></a>
 
 
 <h1>Erşan Kuneri 2. Sezon: Yeni Bölümler ve Sürprizler Ne Zaman Yayınlanacak?</h1>
