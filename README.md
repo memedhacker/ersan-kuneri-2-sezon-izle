@@ -1,6 +1,6 @@
 <h1>Erşan Kuneri 2. sezon izle</h1>
 
-
+<meta name="google-site-verification" content="ZhlJP9C8RQpcskXnHPsyfq9S9ez3KryVfTPOhr7Jn-0" />
 <a href="https://ay.live/ersank"><img src="https://i.imgur.com/oE6Ykhi.png"></a>
 
 
